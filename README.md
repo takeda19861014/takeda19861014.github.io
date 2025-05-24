@@ -1,0 +1,1 @@
+# takeda19861014.github.io
